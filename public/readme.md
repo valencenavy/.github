@@ -1,0 +1,1 @@
+private chromeos exploiting group. completley anonymous, and member list is private. Only select people are invited. 
